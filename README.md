@@ -1,7 +1,4 @@
 # App-DEV
-
-Testing Github for the First Time 
-in 3
-2
-1
-Hello Friends 
+Project is stil up for debate sir hehe 
+and Project Members are 
+Me - Ricky Brain
